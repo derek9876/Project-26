@@ -1,0 +1,1 @@
+warm up water, put the water in the cup, put in tea bag and add sugar or honey if needed.
